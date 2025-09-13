@@ -36,7 +36,7 @@ In this repository (and others in my profile), you’ll find projects related to
 I’d love to share ideas, collaborate, and learn from others.  
 - 📧 Email: **santipuentes2017@gmail.com**  
 - 💼 LinkedIn: **www.linkedin.com/in/santiago-puentes-giraldo-b893b6332**  
-- 🐙 GitHub: **https://github.com/tu_usuario](https://github.com/Santiagxxx**  
+- 🐙 GitHub: **https://github.com/Santiagxxx**  
 
 ---
 
